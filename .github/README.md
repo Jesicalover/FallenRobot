@@ -1,14 +1,14 @@
 ━━━━━━━━━━━━━━━━━━━━
 
 <h2 align="center">
-    ──「 ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ 」──
+    ──「 sᴋᴇʟᴇᴛᴏɴ ✘ ʀᴏʙᴏᴛ 」──
 </h2>
 
 <p align="center">
   <img src="https://github.com/TheAnonymous2005/FallenRobot/blob/master/FallenRobot/resources/fglitch.gif">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/FallenXRobot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [sᴋᴇʟᴇᴛᴏɴ ✘ ʀᴏʙᴏᴛ](https://t.me/Skeleton_loverobot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
@@ -25,7 +25,7 @@ _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ғᴀʟʟᴇɴ ✘ 
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
-  <img src="https://telegra.ph/file/7bd111132fce009e4605e.jpg">
+  <img src="https://telegra.ph/file/fb625cee055087a24da39.jpg">
 </p>
 
 <p align="center">
